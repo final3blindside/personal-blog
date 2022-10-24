@@ -18,5 +18,6 @@ It took me two attempts to perfect the UTS Midterm Exam, I have 4 mistakes in MM
 
 Overall, I would rate my Midterm Exams performance a 5/10. It's not good, not bad, but one crucial mistake or advantage can set the stage for the failure I am dreading. Did I mention a scholarship rests on my grades? I need to bounce back this final term. I need more fuel. I need more thrust. But most of all, I need more time. The world is moving too fast for me and I need to create time out of nowhere.
 
-See you next time,
-Yancey
+See you tomorrow, after I get home from school. Tomorrow is Recollection Day. 1 out of 8 required.
+
+Also, have I mentioned that I lost track of the days? Still thinking if I should continue counting or should I leave it be?
