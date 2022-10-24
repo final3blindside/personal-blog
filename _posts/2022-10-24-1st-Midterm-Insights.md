@@ -1,5 +1,5 @@
 ---
-title: "First-Midterm-Insights"
+title: "First Midterm Insights"
 date: 2022-10-24
 ---
 
