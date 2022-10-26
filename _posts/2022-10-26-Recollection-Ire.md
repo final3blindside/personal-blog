@@ -16,4 +16,4 @@ But I did nothing wrong did I? I was just unofrtunate enough that the traffic oc
 
 I lost all that to the public transport situation here. The traffic on the return route prompted the van to take another route into Silang that comes out of Nuvali. 
 
-From now on, I will leave home 3 hours ahead of any class. I am angered by this and vow to never let this happen again. 
+From now on, I will leave home 3 hours ahead of any class instead of the usual 2 hour allotment. I am angered by this and vow to never let this happen again. 
