@@ -10,3 +10,6 @@ I had just finished doing my Enabling Assessment in Chemistry. It was an easy on
 Looking at my handwritten to-do list now, the only deadlines tomorrow would be the Enabling Assessment in Applied Engineering Mathematics. I have done two attempts already and haven't perfected it yet. There are unlimited attempts, so I would definitely try again tomorrow. Aside from that, the next deadline would be on Saturday. One is about a 2 week log for circuit exercises in PE. The otherone is a group work in Psychology related to having our own interpretations of a slogan and turning it into an artwork. 
 
 And then the Halloween Party event on 31. I already told my mother that I do not want to handle that. It is stressful enough to decorate the house for that, it would be more stressful interacting with kids.
+
+
+On November 10, deadline for completing a challenge in Microsoft Cloud Skills Challenge. Completing one grants you a free exam voucher. I would love that. As someone who wants to learn miore about different parts of tech, both from hardware and software, I will learn EVERYTHING I can. I aim to finish the challenge by ex week, because after then I would be focused on studying for the Nationals. On a side note, I noticed that Microsoft Azure 
