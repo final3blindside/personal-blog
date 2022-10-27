@@ -14,4 +14,14 @@ And then the Halloween Party event on 31. I already told my mother that I do not
 
 On November 10, deadline for completing a challenge in Microsoft Cloud Skills Challenge. Completing one grants you a free exam voucher. I would love that. As someone who wants to learn miore about different parts of tech, both from hardware and software, I will learn EVERYTHING I can. I aim to finish the challenge by ex week, because after then I would be focused on studying for the Nationals. On a side note, I noticed that Microsoft Azure had ramped up their efforts in providing free challenges, certifications, and other important gestures that would make potential users and customers spread the word about Azure. This is surely a marketing attempt and a way to grow Azure's user and audience base. As of now, AWS is leading the cloud provider race, with Azure and GCP hot on its trails. IBM and other tech giants also come into play, but the first three are the current frontrunners. From a business perspective, I do not see anything wrong with this approach by Azure. It helps grow the user community, upskills career shifters, self-learners and developers; all while widening their reach. Sneaky, but respectable.
 
-I also have an essaydue on October 31, but it is more of an extracurrcular one. It is just an essay contest organized by one of the youth organizations that I saw while scrolling on social media. I also saw
+I also have an essaydue on October 31, but it is more of an extracurrcular one. It is just an essay contest organized by one of the youth organizations that I saw while scrolling on social media. I am not even sure if I would have an output by then, but I think it is worth it to note about that here.
+
+On November 17, Nationals at DLSU. 
+
+Last week of November, I am planning to take PDC but for AT. It coincides with the scheduled SCW.
+
+Quantum Computing, UX Design (Figma), Search Engine Optimization, Short Stories, Volunteering anf others not mentioned are still included but not many details now. This is becausse most of them are just fields I chose to pursue on my own.
+
+I may be spreading myself too thin. Or Am I lacking time?
+
+As someone seeing all this from the outside, you decide for me.
