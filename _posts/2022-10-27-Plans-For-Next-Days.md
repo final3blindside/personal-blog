@@ -20,7 +20,7 @@ On November 17, Nationals at DLSU.
 
 Last week of November, I am planning to take PDC but for AT. It coincides with the scheduled SCW.
 
-Quantum Computing, UX Design (Figma), Search Engine Optimization, Short Stories, Volunteering anf others not mentioned are still included but not many details now. This is becausse most of them are just fields I chose to pursue on my own.
+Quantum Computing, UX Design (Figma), Search Engine Optimization, Short Stories, Volunteering and others not mentioned are still included but not many details now. This is becausse most of them are just fields I chose to pursue on my own.
 
 I may be spreading myself too thin. Or Am I lacking time?
 
