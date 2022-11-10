@@ -8,3 +8,6 @@ On Tuesday, I went to school to supposedly review for the Nationals. The AutoCAD
 On Wednesday, I bought a PE uniform and I attended a famli member's funeral.
 
 Today, I will start to focus more. The Nationals is just around the corner, a good 5 days away.
+I will also complete my requirements and will advance submit other works within these 5 days. 
+Seriously, I need to study more.
+
