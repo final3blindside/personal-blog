@@ -31,5 +31,5 @@ date: 2022-11-18
 
    Here is a picture: 
    ![AutoCAD adventures](Layering Activity.png)
-   <img src="Layering Activity.png" alt="AutoCAD Adventures" /> 
+   <img src="_Layering Activity.png" alt="AutoCAD Adventures" /> 
    
