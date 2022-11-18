@@ -25,5 +25,5 @@ date: 2022-11-18
 # I am proud of having recreated an AutoCAD activity all by myself
    This is the same activity that has the deadline that I chased through the fields. I was literally a minute away from the deadline and two minutes late on my second attempt (Because why not)
 
-   Here is a picture:
+   Here is a picture: ![Floor Plan](https://github.com/final3blindside/blog/blob/main/_posts/Layering%20Activity.png)
    
