@@ -29,5 +29,5 @@ date: 2022-11-18
 
    This is the same activity that has the deadline that I chased through the fields. I was literally a minute away from the deadline and two minutes late on my second attempt (Because why not)
 
-   Here is a picture: <img src="Layering Activity.png" alt="My Proof" /> 
+   Here is a picture: <img src="/_posts/Layering Activity.png" alt="My Proof" /> 
    
