@@ -29,7 +29,6 @@ date: 2022-11-18
 
    This is the same activity that has the deadline that I chased through the fields. I was literally a minute away from the deadline and two minutes late on my second attempt (Because why not)
 
-   Here is a picture: 
-   ![AutoCAD adventures](Layering Activity.png)
-   <img src="_Layering Activity.png" alt="AutoCAD Adventures" /> 
+   Here is a picture: ![AutoCAD adventures](_Layering Activity.png)
+  
    
