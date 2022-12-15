@@ -1,4 +1,4 @@
 ---
-final3blindside's side
+Discoveries and Observations: A Dynamic Compendium
 ---
 
