@@ -1,4 +1,4 @@
 ---
-Discoveries and Observations: A Dynamic Compendium
+Discoveries and Observations A Dynamic Compendium
 ---
 
