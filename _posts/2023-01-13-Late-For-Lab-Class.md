@@ -92,3 +92,5 @@ I also passed by the Cashier to receive my tuition fee receipt, but since they h
 I headed home. The van was cramped and hot. I drooled over my face mask, twice. Ate the bread I prepared for lunch on the jeepney home. Everything is in a sorry state. I finally reach home, welcomed by my mother and Chichi, our dog.
 
 # Reflection
+
+I went home knowing
