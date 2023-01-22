@@ -104,7 +104,7 @@ I do not want to get into situations like this again. My mother advised me thay 
 
 Mine wasn't broken, thanks to the durability it has achieved through my past million failures. 
 
-This was my one million first mistake. How many more do I have to make?
+This was my one million and first mistake. How many more do I have to make?
 
 
 
