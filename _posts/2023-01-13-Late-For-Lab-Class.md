@@ -93,4 +93,18 @@ I headed home. The van was cramped and hot. I drooled over my face mask, twice. 
 
 # Reflection
 
-I went home knowing
+I went home knowing that I made a mistake, but I just can't accept that I was in the wrong. My mother had woken me up on the right time! I just didn't make a move or pushed myself to get out of bed that time. I wished that I would either wake up on time, sleep early, or for short, _be more discplined_.
+
+Again, My 7th Grade Mathematics teacher's words are ringing:
+> "Alam mo Labay, matalino ka eh, tamad ka lang."
+
+Ah, to do it all over again and right all the wrongs.
+
+I do not want to get into situations like this again. My mother advised me thay my professors are not friends. Until graduation, they hold students by their necks. And with one snap, they can break a student's spirit then and there.
+
+Mine wasn't broken, thanks to the durability it has achieved through my past million failures. 
+
+This was my one million first mistake. How many more do I have to make?
+
+
+
