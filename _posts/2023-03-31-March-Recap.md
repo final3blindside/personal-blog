@@ -2,6 +2,12 @@
 title: "March Recap"
 date: 2023-03-31
 ---
+
+Turned 19 this month. Now I'm feeling old.
+
+---
+<h2> NIRVANA </h2>
+
 As part of the CEATSG, preparations came around for the NIRVANA. Ate Lexi was the project head. It was incredible how she handled all those different committees for the event. Before the event, I was assigned to the Picture booth. But since there was enough personnel to man the station, I was reassigned to the registration booth, where I had to tell all students to go to the RCC to claim their tickets. It was a bit hectic for those students. This issue was raised during the debriefing though.
 
 The debriefing was every officer's chance to lay down any issue that transpired during the event. One of those was the registration booth happening at the RCC. I was assigned there after lunch. It was indeed hectic. Vian who usually looks bright, was pale by the end of the day. She was one of those operating the laptops for the registration. Aside from that, she was annoyed by a fellow officer who was assigned at the same station. There were also some officers who were verbally reprimanded during the debrieifing.
@@ -24,6 +30,8 @@ With the Transport strike and Holy Week coming through our midterms, we don't ha
 
 ---
 
+<h2> PERSPIRE </h2>
+
 Perspire was another event of the CEATSG. Kuya Rj is the project head. Tomorrow is the last day. There are so many things to say about this event. There were so many disorganizaion among the officers and miscommunication. It was so hard to move forward with the project. Even the event itself was postponed 2 times. The Sponsorship broke down. I was one of the first people who worked on this sub-task. It was indeed hard to find sponsors for the event. In fact, for any event. The fact that we are still under a Pandemic makes this worse. 
 
 Out of 200+ businesses we contacted, only 5 responded and showed interest. Only for all of those partnerships to be cancelled a few days into the event. What a shame. Peona and Vian pushed to make those partnerships happen, but it would be cancelled just because of numerous technicalities in the paperworks, processes, and timeline. 
@@ -43,11 +51,15 @@ I should feel ok, because as compared to others' contributions, mine are minuscu
 
 ---
 
+<h2> Life at Campus </h2>
+
 Two Lasallian souls have died in the past month. One because of a plane crash, and another because of a forced entry robbery. Her name is Queen Leanne Daguinsin. She came from Pila, Laguna and is graduating after this term. What a sad ending to her life. I cannot imagine what was going through her head in her final moments. How about the family she left behind? Her killer doesn't know what damage he has done to the woman's family. He is living without a soul. Her killer has been found a few hours before writing this post. May the following days bring her justice and her family peace. May she rest in peace.
 
 Because of this, security measures in and around the university were tightened. This incident also brought less support from my mother in myself living in a dorm near the university. Nice. But I understand her.
 
 ---
+
+<h2> Ceiling </h2>
 
 No progress in my upskilling campaign, No progress in any other extracurricular activity.
 The only real highlight I can give you is this: 
