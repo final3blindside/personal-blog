@@ -22,6 +22,24 @@ At least, I demonstrated a successful use of my Unified CV system.
 
 <h3> Github Campus Expert Rejection </h3>
 
+Now that I'm recapping about it, I kind of forgot what the application exactly contained.
+
+However, I remember it being only 3 questions, The first one asked me to tell something about myself and the community I represent. The second one asked about the struggles we face as a community, and the final one asked about how being in the program could aid me in growing ym community.
+
+Having been a part of no tech community based in our university, and not in contact with any other community or person from the College of Science and Computer Studies, I knew I would have no chance. The person that I was talking to about forming a Google Developer Student Club in our university has fallen silent. Now I don't have any person who could talk about this. I may have to do something to reach out to someone from the CSIT Programs.
+
+Anyway, I answered as if I was a part of a community that was struggling to grow because the pandemic restrictions in our country was just loosening up. 
+
+You can imagine how a story without basis and honesty can go.
+
+It went short, sounded too dry and shallow, and was obviously a pretentious attempt to pass the process.
+
+Two weeks later, I got the rejection email. They highlighted in the email the key characteristics of the Campus Expert they were looking for. I don't have those. I won't apply for next year. I tried once and I failed. I will recommend the person I am talking to to apply though (He already told me he will.)
+
+Situations like these are moments telling me that I can have everything that I will ask for. But there's nothing wrong with asking in the first place nonetheless. 
+
+Hence, I'll keep asking for more opportunities like these. 
+
 ---
 
 <h3> CEATSG Events and Responsibilities for April </h3>
