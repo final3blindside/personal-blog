@@ -44,9 +44,22 @@ Hence, I'll keep asking for more opportunities like these.
 
 <h3> CEATSG Events and Responsibilities for April </h3>
 
+Ah this one. This one was a bit tricky this April. April only has 4 weeks.
+The last two was occupied by the Midterms Week and Self-care week, respectively.
+The first two was spent on preparations for the Malakasang Labanan: Intramurals 2023.
+
+It was a hard month for me to do my duties as a Junior Officer. I had to stay at home most of the time. Mom doesn't really allow me to got to school these days because she knows how much I will spend on my fare. Thankfully, I now have a reason to counter this current situation of mine which I will explain later.
+
+They had to do props for the CEAT Stallions, they had to arrange papers for the CEAT Rebyuhan and other activities. Basically, most of the things they have done is related to the Intramurals or preparations to the next two CEATSG events: Rebyuhan and Grad Ball.
+
+Myself not appearing in the events that the CEATSG is participating or has hosted makes me a very inactive person in the eyes of the officers, leaving me with no approval from them. In turn, this situation is hard for me as they will turn a side eye to me when I run in the Upcoming Elections. It is going to be hard. My conscience, patience, and willpower will be tested under the pressure of judgement from the officers and my peers.
+
 ---
 
 <h3> Non Professional Driver's License </h3>
+
+This is the reason why I am so hard-faced about running for a position in the CEAT Student Government. I was finally able to secure a Driver's License at the Biñan LTO Branch. I had always long heard that the District Office's service was pleasant and many people were able to pass the Practical Exam there. I guess they were right. 
+
 
 ---
 
