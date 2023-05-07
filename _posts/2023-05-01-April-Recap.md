@@ -65,10 +65,22 @@ This is the reason why I am so hard-faced about running for a position in the CE
 
 <h3> Shoppee Internship Application </h3>
 
+Nothing much about this. I knew I won't get a call or an email from them. Looks like they are looking for 3rd and 4th year students for available employment. They were looking for some technical skills as well. I only know the surface level as compared to the level they were looking for. At least I have shown interest in Cloud Computing.
+
+Nevertheless, I know I won't get in. But there's nothing wrong with trying right?
+
 ---
 
 <h3> SEDS Upskill Groups </h3>
 
+Finally! The group was created around 3rd week of April. It has been a silent group, except for some updates about the group made by Dr. Purio. He posted the syllabus, amae us answer a Pre-assessment form, and made us prepare a 1 slide presentation for our self introduction. The Group had a total of approximtely 30 members.
+
+The first meeting was actually finished yesterday night (Written on May 7, 2023). It was somewhat alright. Naturally, the members (most of which are college students, some even Graduate Students) are silent and observing the atmosphere; while Dr. Purio and Chairperson Lovely Andeo were steering the conversation and making the mood. It was lucky that Dr. Purio is a lively person. He never fails to smile and be interested in what each person has to say.
+
+After each person's introduction, the groupings were announced which was made by the Chairperson beforehand. We were grouped according to our skillsets or backgrounds. It was tailored to have diversity in each group. Because of this, I was sorted away from Vian.
+
+Here's the complete set of groupings: 
+![Satellite Development and Data Processing Upskill Groups - Groupings](SDDP.png)
 ---
 
 <h3> SPARTA Application </h3>
