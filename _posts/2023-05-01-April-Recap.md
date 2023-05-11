@@ -85,6 +85,31 @@ Here's the complete set of groupings:
 
 <h3> SPARTA Application </h3>
 
+I was initially hoping that the process fro application wouldn't be a hassle one. We all know how government transactions work. I even looked at Project SPARTA's [website](https://sparta.dap.edu.ph/), and it looks as if a startup company commissioned a bunch of web developers to create a good looking homepage; and then leaving them with no next instructions how to make the website interesting or operating. 
+
+Maybe I was just judging really fast, because the academic year for that program hasn't started yet.
+Now it make sense why Project SPARTA's website looks dead. It's because there is no one crrently studying. I mean, that's why they were having a call for application right? 
+
+That might have been too judgemental of me. Oops.
+
+Anyway, their Facebook account [posted](https://web.facebook.com/photo/?fbid=694144759382823&set=a.509820927815208) that the courses will open on the 15th of May. (So 4 days from the time of writing this part of the article.)
+
+Looking forward to learning more about Data Science. For your information, I choose the most rigorous pathway out of 6, which is called the "Data Scientist" pathway. Reason? Why not? You're going to study Data Science anyway. Why get called "Data Steward", when you use the same tools as a Data Scientist does?
+
+Under the curriculum I chose, I had to pick 1 Programming Language elective, and 2 electives for microspecializations.
+
+I chose SQL, instead of Python.
+
+and choose "Domain Knowledge: Finance and Risk" and another one tailored towards Budgeting.
+
+My microspecializations are geared towards Financial Risk Analysis. I like it. 
+
+Why SQL? Again, why not. Python is indeed the most used and popular because of how easy to use it, but it really won't hurt learning a little more outside your comfort zone, right?
+
+Plus the program follows a schedule, curriculum and is organized well. It even follows deadline per course outline in your program's curriculum. What I'm saying is that, since this is structured, It;s better than my usual style of learning called "Study Whatever Pops Into My Mind or Study What's Urgent to be Learned". Plus, it's nearing vacation, so there's time and room for learning.
+
+Hopefully I get accepted, and see a Linang username account on the SPARTA online portal.
+
 ---
 
 <h3> University/College Student Government Elections </h3>
