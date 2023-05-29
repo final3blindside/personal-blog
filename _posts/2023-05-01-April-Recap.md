@@ -114,6 +114,8 @@ Hopefully I get accepted, and see a Linang username account on the SPARTA online
 
 <h3> University/College Student Government Elections </h3>
 
+I filed my Candidacy at the GMH Building on the Final Day of Filing of Candidacy
+
 ---
 
 <h3> Other Matters </h3>
